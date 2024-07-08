@@ -1,4 +1,4 @@
-## <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="28"> About Hayato Suzuki
+## <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="28"> About Hayato Suzuki（WIP）
 
 ## SNS
 [X - @macaron8810](https://twitter.com/usernamemacaron8810)
